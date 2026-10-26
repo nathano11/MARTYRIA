@@ -31,3 +31,5 @@ Not the Sabbath. Not the covenant. Not the kingdom. Not the Jubilee. Not even th
 The poem might not be discovering a new truth.  
 It might be making an old truth newly visible by connecting it to a whole network of things we thought we understood separately.  
 And sometimes that’s what a powerful idea does: it doesn’t give you another fact to remember. It changes what you notice.
+
+iuuqt://bsdijwf.psh/efubjmt/ejhjubm-qjnqjoh-gvmm-djsdmf
